@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ceaser68
 - 👀 I’m interested in all things nerdy
-- 🌱 I’m currently learning everyhting
+- 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on time
 - 📫 How to reach me 
 
